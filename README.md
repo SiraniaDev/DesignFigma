@@ -8,5 +8,3 @@
 
 
 
-![Group 3-3](https://user-images.githubusercontent.com/64682028/87240392-67a03300-c419-11ea-93b9-d07a80de643d.png)
-
